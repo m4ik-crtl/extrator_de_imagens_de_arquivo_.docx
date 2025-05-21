@@ -1,0 +1,1 @@
+# extrator_de_imagens_de_arquivo_.docx
